@@ -4,6 +4,7 @@ INTRODUCTION  .  .  🐾
 - TAKEN BY THE MOZT BEAUTIFUL GIRL IN THE WORLD (NAYA LOML<33)
 - Bizexual, Bigender And azexual
 - Lovez poemz, drawing and her !!
+- NAYA, DAN, DANI, CORA >>> U
 
 RULEZ TO FOLLOW B4 INT  .  .  🌀
 - Cuddlez are allowed, but no kizzing unlezz itz plantonic or ur a friend of mine!! -10 & +20 dni
