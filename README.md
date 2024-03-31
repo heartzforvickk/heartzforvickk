@@ -9,6 +9,8 @@ INTRODUCTION  .  .  🐾
 RULEZ TO FOLLOW B4 INT  .  .  🌀
 - Cuddlez are allowed, but no kizzing unlezz itz plantonic or ur a friend of mine!! -10 & +20 dni
 - Do NOT copy, inzpo iz ok but azk firzt before doing it or i'll block u
+- Ask permit to friend! I will appreciate it dearly ^_^
+- Do NOT tell me sexual jokes unless close or i know you personally! i will block if it gets to much.
 <!---
 heartzforvickk/heartzforvickk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
